@@ -34,6 +34,9 @@ QQ交流群：
 此模块现已收费，最后一个免费版本为 1.9.8
 
 最新付费版(源计划)模块下载链接： https://wwz.lanzouy.com/b09bhrioh (密码:fake)
+
+https://www.123pan.com/s/3CSxjv-cMpVv.html
+
 ```
 
 ## Usage
